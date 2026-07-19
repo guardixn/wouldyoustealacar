@@ -1,2 +1,1 @@
-# wouldyoustealacar
-fuh naw
+long live piracy
